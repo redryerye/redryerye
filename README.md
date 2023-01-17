@@ -9,4 +9,4 @@
 </a>
 
 
-or check [my website](https://redryerye.com) out
+or visit my [website](https://redryerye.com)
